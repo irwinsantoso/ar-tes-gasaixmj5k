@@ -1,1 +1,0 @@
-# ar-tes-gasaixmj5k
